@@ -1,1 +1,0 @@
-# acumalaka.github.io
